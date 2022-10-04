@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @ducmn
+- 🌱 I’m currently learning Python
+- 📫 You can reach me at nguyenmanhduc1309@gmail.com
