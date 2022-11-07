@@ -1,1 +1,1 @@
-- 📫 You can reach me at nguyenmanhduc1309@gmail.com
+Most things are complicated.
