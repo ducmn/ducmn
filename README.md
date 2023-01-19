@@ -1,1 +1,1 @@
-Most things are complicated.
+Learning stuff.
